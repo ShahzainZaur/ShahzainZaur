@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning Front End dveloping
 - 📫 How to reach me https://www.instagram.com/slvr0011/
 https://www.linkedin.com/in/shahzain-zaur-b85932283/
-twitter.com/d39_shazy
+www.twitter.com/d39_shazy
